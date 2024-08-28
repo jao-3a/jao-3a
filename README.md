@@ -1,4 +1,5 @@
 ## salve salve familia 👋
-Me chamo joão lucas galerinha
+Sou o João.
+"Ai você está demostrando a essência, eu hein👃"
 
-![](https://media1.tenor.com/m/EU903P7XpkAAAAAC/title-lupin.gif)
+![](https://media1.tenor.com/m/79EEQlydGZEAAAAd/jorlanvieira-jorlan.gif)
